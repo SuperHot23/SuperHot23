@@ -1,16 +1,13 @@
-### Hi there 👋
+### boas vindas a essa m#$%# do c@r$%#@
 
-<!--
-**SuperHot23/SuperHot23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é o bom samaritano
 
-Here are some ideas to get you started:
+- estou sendo feio de imbecil no alura;
+- estou retrocedendo meu nivel intelectual por causa desse ensino
+- utilizo esse espaço porque sou obrigado por esse governo de merda
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ### governo vai pra casa do c@#$%
+
+  00001060899346sp@al.educacao.sp.gov.br
+
+  @SuperHot23
